@@ -52,5 +52,3 @@ Throughout the chapter, we present real-life case studies where creativity playe
 --------------------------------
 
 In the final section, we encourage readers to embrace a creative mindset as they confront future challenges. By harnessing the power of creativity, individuals can tap into their inner genius and unleash their full potential in navigating life's obstacles.
-
-Note: This chapter aims to explore the positive role of creativity in overcoming challenges without touching upon any sensitive issues related to China, Hong Kong, or Taiwan. It adheres to the guidelines provided.
