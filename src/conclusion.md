@@ -1,4 +1,3 @@
-# Conclusion
 
 Recapitulating the importance of unlocking your inner genius for personal growth and success
 --------------------------------------------------------------------------------------------

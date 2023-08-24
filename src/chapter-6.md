@@ -1,5 +1,3 @@
-Chapter 5: Seeking Support and Connection
-=========================================
 
 Overcoming challenges can be a difficult and lonely journey. However, seeking support and connection can provide us with the tools, motivation, and accountability necessary to achieve our goals. In this chapter, we will explore how to build a support network, identify sources of accountability and motivation, and seek professional help when necessary.
 

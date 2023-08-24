@@ -1,5 +1,3 @@
-Chapter 4: Embracing Risk-Taking
-================================
 
 Taking risks is an essential component of overcoming challenges and unlocking your inner genius. In this chapter, we will explore the importance of risk-taking, provide strategies for managing fear and uncertainty, and discuss how to cultivate a mindset of experimentation.
 

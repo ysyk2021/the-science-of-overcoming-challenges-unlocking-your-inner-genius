@@ -1,7 +1,3 @@
-Practicing Gratitude and Perspective-Taking
-====================================================
-
-
 
 In this chapter, we will explore the transformative power of practicing gratitude and perspective-taking. By cultivating these two essential skills, individuals can unlock their inner genius and overcome challenges in their lives.
 

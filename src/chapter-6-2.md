@@ -1,5 +1,3 @@
-Identifying Sources of Accountability and Motivation
-===============================================================
 
 In our journey to overcome challenges and unlock our inner genius, it is crucial to recognize the importance of accountability and motivation. These two factors play a significant role in keeping us focused, driven, and committed to our goals. In this chapter, we will explore various sources of accountability and motivation that can propel us forward on our path to success.
 

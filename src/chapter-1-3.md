@@ -1,5 +1,3 @@
-Setting Goals for Developing a Mindset of Overcoming Challenges
-========================================================================
 
 In this chapter, we will explore the importance of setting goals as a means to develop a mindset geared towards overcoming challenges. Goals serve as a roadmap on our journey to personal growth and success, providing us with direction and motivation. By setting goals that align with our aspirations and values, we can cultivate a resilient mindset that empowers us to tackle obstacles head-on.
 

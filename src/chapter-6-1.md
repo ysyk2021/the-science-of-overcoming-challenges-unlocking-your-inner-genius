@@ -1,5 +1,3 @@
-Building a Support Network
-=====================================
 
 In our journey to overcome challenges and unlock our inner genius, we often underestimate the power of having a strong support network. Surrounding ourselves with the right people who believe in us, inspire us, and provide guidance can make all the difference in achieving our goals. In this chapter, we will explore the importance of building a support network and discover practical ways to cultivate meaningful connections.
 

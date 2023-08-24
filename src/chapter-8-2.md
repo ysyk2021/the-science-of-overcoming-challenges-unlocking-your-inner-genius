@@ -1,5 +1,3 @@
-Managing Risk and Uncertainty
-======================================
 
 In this chapter, we will explore the importance of managing risk and uncertainty in our lives. Life is full of challenges and unknowns, but by developing effective strategies to navigate through them, we can unlock our inner genius and achieve success.
 

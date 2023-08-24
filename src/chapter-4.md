@@ -1,5 +1,3 @@
-Chapter 3: Tapping into Your Inner Genius
-=========================================
 
 Tapping into your inner genius involves developing the skills and mindset needed to overcome challenges and achieve success. In this chapter, we will explore the role of creativity in overcoming challenges, provide strategies for enhancing creativity, and discuss visualization and ideation techniques.
 
@@ -37,5 +35,4 @@ Visualization and ideation are powerful techniques that can help you tap into yo
 * Engage in brainstorming: Brainstorming is a technique that involves generating multiple solutions to a problem. To engage in brainstorming, start by identifying a problem or challenge that you want to solve. Then, write down as many ideas as possible, without judging or critiquing them.
 
 By developing your creative skills and practicing visualization and ideation techniques, you can tap into your inner genius and overcome even the most difficult challenges. Remember, creativity is a skill that can be developed and honed over time, and it is essential for achieving success.
-
 
