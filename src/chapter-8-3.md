@@ -1,5 +1,4 @@
-Chapter: Dealing with Failure and Learning from Mistakes
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the importance of effectively dealing with failure and learning from mistakes as part of unlocking your inner genius. We delve into the science behind failure resilience, provide strategies for overcoming setbacks, and discuss the transformative power of learning from mistakes.
 
